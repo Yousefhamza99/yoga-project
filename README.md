@@ -1,2 +1,10 @@
-# yoga-project
-yoga-project
+
+![1](https://github.com/user-attachments/assets/6cfa8401-34c9-4511-bc84-7a95ffb1fbde)
+![2](https://github.com/user-attachments/assets/e4ed1a4d-cc52-4520-8c0e-79f83f6a9f70)
+![3](https://github.com/user-attachments/assets/973edc6a-d767-478c-a05f-839e189a148a)
+![4](https://github.com/user-attachments/assets/17b6ffef-d5fa-46d6-958b-5e9ee3fe51d2)
+![5](https://github.com/user-attachments/assets/db6b9b0a-ffda-449b-b0c0-12fe033672dd)
+![6](https://github.com/user-attachments/assets/4970009d-7612-4f7f-8fe8-d420e4e2cde7)
+![7](https://github.com/user-attachments/assets/47342000-70da-4e73-ac0f-81c0c2eb948d)
+![8](https://github.com/user-attachments/assets/f67f4f66-2cc8-4b6d-99f5-d6dce0b66374)
+![9](https://github.com/user-attachments/assets/1599de05-0188-4c27-96ca-a1d69ce3aaa7)
